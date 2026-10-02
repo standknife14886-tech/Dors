@@ -1,2 +1,2 @@
 # Dors
-Delta bystit
+Мама птица
